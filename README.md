@@ -1,0 +1,1 @@
+# Kodluyoruz-Izmir-Uygulamali-Veri-Bilimi-2020
